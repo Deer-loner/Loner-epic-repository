@@ -1,2 +1,2 @@
-# Loner-epic-repository
+# Loner-marvellous-repository
 Just a new repository.
